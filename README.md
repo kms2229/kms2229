@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science(ML,AI,SE)
 - 📫 How to reach me ... :
 - instagram: @the_unique__person 
-- linkedin: https://github.com/kms2229/kms2229
+- linkedin: https://www.linkedin.com/in/kavach22/
 
 
 <!---
